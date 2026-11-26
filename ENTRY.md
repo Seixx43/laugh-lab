@@ -1,1 +1,1 @@
-I thought it was a dust bunny with commitment issues.
+I did not eat the sock. I am holding it hostage until someone empties my dustbin.
